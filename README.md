@@ -1,2 +1,0 @@
-# Maru-Mobile-Paid
-zz
